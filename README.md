@@ -1,1 +1,1 @@
-# Major-Projects: : Work-In-Progress
+# Major-Projects: Work-In-Progress
